@@ -20,4 +20,4 @@ Of course, the whole project is a joke, but your response will make me extremely
 
 Don't forget to check out my [TikTok](https://www.tiktok.com/@barawasz).
 
-I love you guys. Barawasz.
+I love you guys. **Barawasz**.
